@@ -1,0 +1,3 @@
+- 👋 Hi, I’m @xkvotidian
+- 👀 Student of IT
+- 📫 xkvotidian@stuba.sk
